@@ -14,4 +14,4 @@ Technical Background:
 
 
 
-![Funny Meme](./)
+![Funny Meme](https://images.wondershare.com/filmora/article-images/Sad-Frog-meme.JPG)
