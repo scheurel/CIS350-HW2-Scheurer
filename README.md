@@ -3,8 +3,8 @@
 
 Here are some of my interests:
 - I'm a big snowboarder and actually in the GVSU Ski & Snowboard Club
-- My programming languages include Python, SQL, and C
-- I like researching different databases in SQL
+- Video Games
+- Cybersecurity
 
 
 Technical Background:
