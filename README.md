@@ -3,7 +3,7 @@
 
 Here are some of my interests:
 - I'm a big snowboarder and actually in the GVSU Ski & Snowboard Club
-- Video Games
+- Video games
 - Cybersecurity
 
 
